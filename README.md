@@ -13,7 +13,7 @@
 
 - 🤝 I’m looking for help with **N17Pro3426**
 
-- 👨‍💻 All of my projects are available at [https://github.com/MrMarlon2210-png/My-Malware](https://github.com/MrMarlon2210-png/My-Malware)
+- 👨‍💻 All of my projects are available at [https://github.com/MrMarlon2210-jpg/My-Malware](https://github.com/MrMarlon2210-png/My-Malware)
 
 - 📫 How to reach me **you can't**
 

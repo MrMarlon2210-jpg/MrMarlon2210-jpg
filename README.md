@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on GDI Malware<br><br>🌱 I’m currently learning Visual Studio 2022<br><br>👯 I’m looking to collaborate on GDI Malware [ AGAIN ]<br><br>🤝 I’m looking for help with N17Pro3426<br><br>🚻 Gender: Male<br><br>▶️ My YouTube Channel: https://www.youtube.com/@Marlon2210-m5y<br><br>📫 How to reach me you can't<br><br>💙 Age: 14<br><br>⚡ Fun fact I am funny
+🔭 I’m currently working on GDI Malware<br><br>🌱 I’m currently learning Visual Studio 2022<br><br>👯 I’m looking to collaborate on GDI Malware [ AGAIN ]<br><br>🤝 I’m looking for help with N17Pro3426<br><br>🚻 Gender: Male<br><br>▶️ My YouTube Channel: https://www.youtube.com/@Marlon2210-m5y<br><br>📫 How to reach me mrmarlon2210@proton.me<br><br>💙 Age: 14<br><br>⚡ Fun fact I am funny
 
 
 ## 🌐 Socials:

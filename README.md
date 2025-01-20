@@ -1,4 +1,7 @@
 # 💫 About Me:
+
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=500&size=30&duration=3000&pause=1000&width=435&lines=Hello%2C+user;Welcome+to+my+github+profile!;I+Code+GDI+Malware+With+C%2B%2B;My+name+is+Marlon2210;Also+known+as+blue+boi%2C+but+you+can+call+me+marlon)](https://git.io/typing-svg)
+
 🔭 I’m currently working on GDI Malware<br><br>🌱 I’m currently learning Visual Studio 2022<br><br>👯 I’m looking to collaborate on GDI Malware [ AGAIN ]<br><br>🤝 I’m looking for help with N17Pro3426<br><br>🚻 Gender: Male<br><br>▶️ My YouTube Channel: https://www.youtube.com/@Marlon2210-m5y<br><br>📫 How to reach me You Can't<br><br>💙 Age: 14<br><br>⚡ Fun fact I am funny
 
 
